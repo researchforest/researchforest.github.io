@@ -1,5 +1,5 @@
 # André Faria
-![me](/assets/me.jpg)
+![me](http://researchforest.com/wp-content/uploads/2018/11/13047808_1176043445739071_6700409214217539254_o.jpg)
 > _"No intelligent idea can gain general acceptance unless some stupidity is mixed in with it”_
 >> **Fernando Pessoa**
 
